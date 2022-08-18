@@ -17,4 +17,6 @@
 4. 过往级别不重要；我们希望你乐于接受不同意见，对变化积极乐观，对挑战充满激情，善于沟通协作，不设边界，和优秀的人做有挑战的事
 
 ## 内推通道
+![image](https://user-images.githubusercontent.com/3881629/185386879-81ef509b-29bc-4162-a10b-03e2aba97117.png)
+
 https://job.toutiao.com/s/j5DQ4Xf
