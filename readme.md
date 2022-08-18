@@ -20,7 +20,7 @@
 
 欢迎加我聊一聊，我的邮箱和twitter在github上都有。
 
-也可以直接投递：
+也可以直接投递，我会收到推送并跟进：
 
 ![image](https://user-images.githubusercontent.com/3881629/185386879-81ef509b-29bc-4162-a10b-03e2aba97117.png)
 
